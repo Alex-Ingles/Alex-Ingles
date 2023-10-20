@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Alex-Ingles
 - :) I'm a senior architecture professional
 - 👀 I’m interested in changing this world
-- 🌱 I’m currently learning how to catch this train
+- 🌱 I’m currently learning how to start with all of this staff
 - 💞️ I’m looking to collaborate on nothing by now
 - 📫 How to reach me: here
 
